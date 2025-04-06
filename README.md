@@ -104,4 +104,4 @@ These projects align with the _United Nations Sustainable Development Goals (SDG
 
 ---
 
-> Built with passion to create a meaningful impact in the world 🌍💡
+> Built with passion to create a meaningful impact in the world by Team Victory Voyagers 🌍💡
